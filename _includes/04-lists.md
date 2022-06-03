@@ -1,0 +1,4 @@
+- Developing
+- Sleeping
+- Playing games
+- Playing with dogs.
