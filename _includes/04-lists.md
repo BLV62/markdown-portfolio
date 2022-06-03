@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Developing
+- Sleeping
+- Playing games
+- Playing with dogs.
